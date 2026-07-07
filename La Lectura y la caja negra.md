@@ -1,0 +1,1 @@
+Debemos entonces definir no lo que implica ser un escritor, sino lo que implica ser un lector.
